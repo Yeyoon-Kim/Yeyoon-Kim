@@ -1,3 +1,3 @@
-## Korea University
-## Department of Linguistics
-## Undergraduate student
+Korea University
+Department of Linguistics
+Undergraduate student
